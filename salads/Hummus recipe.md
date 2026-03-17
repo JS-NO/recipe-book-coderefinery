@@ -1,0 +1,16 @@
+# Hummus recipe
+
+## Ingredients
+Canned chickpeas (1 can)
+Tahini (1/4 cup)
+Olive oil (2-3 tablespoons)
+Lemon juice (from 1 lemon)
+Garlic (1-2 cloves, minced)
+Salt (to taste)
+Water (as needed for consistency)
+
+## Instructions
+1. Blend the canned chickpeas, tahini, olive oil, lemon juice, garlic, and salt in a food processor until smooth.
+2. Add water gradually to achieve your desired consistency.
+3. Taste and adjust seasoning if necessary.
+4. The recipe can be customized with additional spices or toppings like paprika or olive oil for serving. 
